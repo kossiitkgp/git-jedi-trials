@@ -1,0 +1,1 @@
+My favorite cartoon is Tom and jerry , I love it because its fun , entertaining , i love the fact that even though they fight continuosly among themselves , they always protect each other from other people 
