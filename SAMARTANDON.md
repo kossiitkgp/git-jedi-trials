@@ -1,1 +1,1 @@
-Well, my favorite pokémon is Chikorita, because its name is kinda funny and it looks cute.
+My name is Samar. I am interested in webnovels, manhwas, etc. I like doing new things, as its simulating. Or I'd just sleep.
