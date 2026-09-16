@@ -1,0 +1,1 @@
+Well, my favorite pokémon is Chikorita, because its name is kinda funny and it looks cute.
