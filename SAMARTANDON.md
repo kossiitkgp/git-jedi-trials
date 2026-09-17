@@ -1,0 +1,1 @@
+My name is Samar. I am interested in webnovels, manhwas, etc. I like doing new things, as its simulating. Or I'd just sleep.
